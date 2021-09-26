@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Spa0147
+- 👋 Hi, I’m @0147
 - 👀 I’m interested in learning as a student
 - 🌱 I’m currently learning the beginner skills, new ideas, RDPs, SCRIPTS excting stuffs
 - 💞️ I’m looking to collaborate on ...
